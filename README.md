@@ -29,7 +29,7 @@
 
 ## 🗣 Languages
 
-- **Spanish (Native), English (Expert)**
+- **Spanish (Native), English (Fluent), Russian (Basic)**
 
 ## 🛠️ Skills
 
