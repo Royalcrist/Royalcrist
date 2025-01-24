@@ -1,6 +1,6 @@
 # Hola, I'm Cristian Suárez González! <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="29px" height="29px">
 
-🌍 Seville, Spain • 📞 [+34 645 40 32 64](tel:+34645403164) • 📧 [cristiansuarezg7@gmail.com](cristiansuarezg7@gmail.com)
+🌍 Warsaw, Poland • 📞 [+34 645 40 32 64](tel:+34645403164) • 📧 [cristiansuarezg7@gmail.com](cristiansuarezg7@gmail.com)
 
 ## 🚀 About Me
 
